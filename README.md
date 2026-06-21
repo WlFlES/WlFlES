@@ -1,4 +1,4 @@
-𝚊𝚗𝚝𝚘𝚗𝚎𝚕𝚕𝚒𝚙𝚒𝚕𝚕𝚎𝚍
+𝚊𝚗𝚝𝚘𝚗𝚎𝚕𝚕𝚒 𝚗𝚘.𝟷 𝚐𝚕𝚊𝚣𝚎𝚛
 
 𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎.
 
@@ -35,5 +35,5 @@
 
 𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚑𝚊𝚟𝚎 𝚊 kіᥕі kіmі
 
-<img width="862" height="799" alt="178206005139153980355135976764" src="https://github.com/user-attachments/assets/3bf4d354-a11a-4deb-99d1-4d9236584e19" />
+<img width="782" height="754" alt="178206005139153980355135976764" src="https://github.com/user-attachments/assets/3bf4d354-a11a-4deb-99d1-4d9236584e19" />
 
