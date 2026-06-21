@@ -1,3 +1,4 @@
+𝚊𝚗𝚝𝚘𝚗𝚎𝚕𝚕𝚒𝚙𝚒𝚕𝚕𝚎𝚍
 
 𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎.
 
@@ -31,3 +32,7 @@
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
+
+𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚑𝚊𝚟𝚎 𝚊 kіᥕі 𝚔і𝚖і
+
+https://github.com/spokeis-here/spokeis-here/issues/3#issue-4711139328
