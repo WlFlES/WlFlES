@@ -21,8 +21,7 @@
 
 think im problematic? block me
 
-dont like my humour? block me.           <img width="𝟸00" height="𝟸00" alt="4df65c65-b45a-4fe0-9f1b-bafc03bccb57 (1)" src="https://github.com/user-attachments/assets/29c84256-9de0-4bdb-854f-5792383bd936" />
-
+dont like my humour? block me
 
 𝚒 𝚍𝚘 𝚖𝚊𝚔𝚎 𝚒𝚗𝚗𝚊𝚙𝚛𝚘𝚙𝚛𝚒𝚊𝚝𝚎 𝚓𝚘𝚔𝚎𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜, 𝚜𝚘 𝚍𝚗𝚒 𝚘𝚛 𝚋𝚕𝚘𝚌𝚔 𝚖𝚎 𝚒𝚏 𝚞 𝚍𝚘𝚗𝚝 𝚕𝚒𝚔𝚎 𝚝𝚑𝚊𝚝.
 
@@ -32,13 +31,16 @@ dont like my humour? block me.           <img width="𝟸00" height="𝟸00" alt
 
 × 𝚒𝚍𝚔 𝚑𝚘𝚠 𝚐𝚒𝚝𝚑𝚞𝚋 𝚠𝚘𝚛𝚔𝚜, 𝚒𝚖 𝚟𝚎𝚛𝚢 𝚜𝚘𝚛𝚛𝚢 𝚒𝚏 𝚝𝚑𝚒𝚜 𝚕𝚘𝚘𝚔𝚜 𝚋𝚊𝚍
 
-× 𝚒 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚜𝚠𝚎𝚊𝚛 𝚊𝚕𝚘𝚝, 𝚜𝚘 𝚋𝚕𝚘𝚌𝚔 𝚖𝚎 𝚒𝚏 𝚞𝚛 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠𝚒𝚝𝚑 𝚝𝚑𝚊𝚝.
+× 𝚒 𝚝𝚎𝚗𝚍 𝚝𝚘 𝚜𝚠𝚎𝚊𝚛 𝚊𝚕𝚘𝚝, 𝚜𝚘 𝚑𝚒𝚍𝚎 𝚖𝚎 𝚒𝚏 𝚞𝚛 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠𝚒𝚝𝚑 𝚝𝚑𝚊𝚝.
 
 ×𝚒 𝚐𝚎𝚝 𝚙𝚒𝚜𝚜𝚎𝚍 𝚘𝚏𝚏 𝚎𝚊𝚜𝚒𝚕𝚢
 
 × 𝚙𝚕𝚣 𝚍𝚘𝚗𝚝 𝚒𝚐𝚗𝚘𝚛𝚎 𝚖𝚎, 𝚒 𝚐𝚎𝚝 𝚏𝚛𝚞𝚜𝚝𝚛𝚊𝚝𝚎𝚍.
 
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
+
+<img width="𝟸𝟸𝟶" height="𝟸𝟸𝟶" alt="4df65c65-b45a-4fe0-9f1b-bafc03bccb57 (1)" src="https://github.com/user-attachments/assets/369b560e-179f-4b7d-964f-730160e78d4e" />
+
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
 
