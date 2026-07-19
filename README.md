@@ -41,6 +41,6 @@ dont like my humour? block me.
 
 𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 <3
 
-<img width="1200" height="700" alt="17844651354952968506989815477093" src="https://github.com/user-attachments/assets/9c773bb0-ddfc-45b2-beb1-56b3257458a2" />
+<img width="1200" height="350" alt="17844651354952968506989815477093" src="https://github.com/user-attachments/assets/9c773bb0-ddfc-45b2-beb1-56b3257458a2" />
 
 
