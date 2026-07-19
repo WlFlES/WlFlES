@@ -20,7 +20,8 @@
 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝!
 
 think im problematic? block me
-dont like my humour? block me.           <img width="𝟸𝟸𝟻" height="𝟸𝟸𝟶" alt="4df65c65-b45a-4fe0-9f1b-bafc03bccb57 (1)" src="https://github.com/user-attachments/assets/29c84256-9de0-4bdb-854f-5792383bd936" />
+
+dont like my humour? block me.           <img width="𝟸00" height="𝟸00" alt="4df65c65-b45a-4fe0-9f1b-bafc03bccb57 (1)" src="https://github.com/user-attachments/assets/29c84256-9de0-4bdb-854f-5792383bd936" />
 
 
 𝚒 𝚍𝚘 𝚖𝚊𝚔𝚎 𝚒𝚗𝚗𝚊𝚙𝚛𝚘𝚙𝚛𝚒𝚊𝚝𝚎 𝚓𝚘𝚔𝚎𝚜 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜, 𝚜𝚘 𝚍𝚗𝚒 𝚘𝚛 𝚋𝚕𝚘𝚌𝚔 𝚖𝚎 𝚒𝚏 𝚞 𝚍𝚘𝚗𝚝 𝚕𝚒𝚔𝚎 𝚝𝚑𝚊𝚝.
