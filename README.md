@@ -1,3 +1,7 @@
+<img width="225" height="225" alt="17844653991687406291872807030621" src="https://github.com/user-attachments/assets/1c6b8b17-bb16-4011-9aae-15b71f67eabb" /> <img width="588" height="330" alt="17844655206635093078437934594952" src="https://github.com/user-attachments/assets/927faf79-dbfe-4489-a969-d3d83ac7d76d" />
+
+
+
 𝚊𝚗𝚝𝚘𝚗𝚎𝚕𝚕𝚒 𝚗𝚘.𝟷 𝚐𝚕𝚊𝚣𝚎𝚛
 
 𝚑𝚎𝚢! 𝚒 𝚊𝚝𝚎 𝚠𝚒𝚏𝚒𝚎𝚜 𝚑𝚘𝚞𝚜𝚎.
