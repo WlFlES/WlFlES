@@ -39,7 +39,8 @@ dont like my humour? block me.
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
 
-𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 𝚑𝚊𝚟𝚎 𝚊 kіᥕі kіmі
+𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 <3
 
-<img width="782" height="754" alt="178206005139153980355135976764" src="https://github.com/user-attachments/assets/3bf4d354-a11a-4deb-99d1-4d9236584e19" />
+<img width="1200" height="727" alt="17844651354952968506989815477093" src="https://github.com/user-attachments/assets/9c773bb0-ddfc-45b2-beb1-56b3257458a2" />
+
 
