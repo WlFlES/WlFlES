@@ -1,12 +1,10 @@
 <img width="225" height="215" alt="17844653991687406291872807030621" src="https://github.com/user-attachments/assets/1c6b8b17-bb16-4011-9aae-15b71f67eabb" /><img width="588" height="215" alt="17844655206635093078437934594952" src="https://github.com/user-attachments/assets/927faf79-dbfe-4489-a969-d3d83ac7d76d" />
 
-
-
-𝚔𝚒𝚖𝚒 𝚊𝚗𝚝𝚘𝚗𝚎𝚕𝚕𝚒'𝚜 𝚗𝚘.𝟷 𝚏𝚊𝚗! 
+𝚖𝚎 : 𝚒𝚗𝚜𝚎𝚗𝚜𝚒𝚝𝚒𝚟𝚎 
 
 𝚑𝚎𝚢!
 
-𝚒 𝚐𝚘 𝚋𝚢 𝚙𝚎𝚝𝚎𝚛, 𝚊𝚙𝚙𝚕𝚎, 𝚋𝚛𝚘𝚘𝚖, 𝚌𝚊𝚖, 𝚛𝚎𝚡, 𝚊𝚌𝚑𝚒𝚕𝚕𝚎𝚜! 
+𝚒 𝚐𝚘 𝚋𝚢 𝚙𝚎𝚝𝚎𝚛, 𝚊𝚙𝚙𝚕𝚎, 𝚋𝚛𝚘𝚘𝚖,𝚠𝚒𝚏𝚒𝚎𝚜 , 𝚊𝚌𝚑𝚒𝚕𝚕𝚎𝚜! 
 
 𝚗𝚘𝚛𝚖𝚊𝚕𝚕𝚢 𝚒𝚗 𝚐𝚝𝚌𝚜, 𝚑𝚊𝚗𝚐𝚘𝚞𝚝,𝚏𝚝𝚜,𝖿𝚜𝚛
 
@@ -19,9 +17,7 @@
 
 𝚒𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 𝚖𝚎, 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌+𝚑 𝚊𝚗𝚍 𝚒𝚗𝚝!
 
-think im problematic? block me
-
-dont like my humour? block me
+dont like my humour? dni/hide plzz
 
 𝚍𝚗𝚒:𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚢 𝚋𝚛𝚎𝚊𝚔𝚎𝚛𝚜, 𝚜𝚎𝚡𝚒𝚜𝚝, 𝚖𝚒𝚜𝚘𝚐𝚢𝚗𝚒𝚜𝚝, 𝚛𝚊𝚌𝚒𝚜𝚝, 𝚝𝚛𝚊𝚗𝚜𝚙𝚑𝚘𝚋𝚎, 𝚑𝚘𝚖𝚘𝚙𝚑𝚘𝚋𝚎, 𝚑𝚎𝚝𝚎𝚛𝚘𝚙𝚑𝚘𝚋𝚎
 
@@ -48,6 +44,6 @@ dont like my humour? block me
 
 𝚝𝚑𝚊𝚗𝚔 𝚢𝚞𝚞 𝚏𝚘𝚛 𝚛𝚎𝚊𝚍𝚒𝚗𝚐 <3
 
-<img width="1200" height="350" alt="17844651354952968506989815477093" src="https://github.com/user-attachments/assets/9c773bb0-ddfc-45b2-beb1-56b3257458a2" />
+
 
 
