@@ -37,7 +37,7 @@
 
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
 
-<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/adee33da-835b-4e23- baee-  646840f04661" />
+<img width="1280" height="1280" alt="Image" src="https://github.com/user-attachments/assets/adee33da-835b-4e23-baee-646840f04661" />
 
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
