@@ -1,4 +1,4 @@
-<img width="200" height="200" alt="17844653991687406291872807030621" src="https://github.com/user-attachments/assets/1c6b8b17-bb16-4011-9aae-15b71f67eabb" /><img width="588" height="215" alt="17844655206635093078437934594952" src="https://github.com/user-attachments/assets/927faf79-dbfe-4489-a969-d3d83ac7d76d" />
+<img width="200" height="215" alt="17844653991687406291872807030621" src="https://github.com/user-attachments/assets/1c6b8b17-bb16-4011-9aae-15b71f67eabb" /><img width="590" height="215" alt="17844655206635093078437934594952" src="https://github.com/user-attachments/assets/927faf79-dbfe-4489-a969-d3d83ac7d76d" />
 
 𝚍𝚘 𝙽𝙾𝚃 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚓𝚊𝚡. 𝚒 𝚠𝚒𝚕𝚕 𝚋𝚕𝚘𝚌𝚔 𝚢𝚘𝚞. 
 
@@ -37,7 +37,7 @@
 
 × http://youtube.com/post/UgkxyRCopx866gYI7h9ggA59p74FCBvZTANv?si=Qp-QjM4Jq3iOyfeS
 
-  <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/adee33da-835b-4e23-                     baee-  646840f04661" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/adee33da-835b-4e23- baee-  646840f04661" />
 
 
 ◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦◦◦◦,°.✽✦✽.◦.✽✦✽.°,◦
